@@ -1,1 +1,0 @@
-# Jirani-Tours-And-Safari
